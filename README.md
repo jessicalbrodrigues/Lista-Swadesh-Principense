@@ -1,0 +1,1 @@
+# Lista-Swadesh-Principense
